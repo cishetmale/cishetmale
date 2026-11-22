@@ -8,4 +8,5 @@
 </p>
 
 
-<img src="https://file.garden/armvItnyuXvvgEB5/fuminori-saya-no-uta.gif">
+<img src="https://file.garden/armvItnyuXvvgEB5/fuminori-saya-no-uta.gif" width="240" 
+     height="240" />
