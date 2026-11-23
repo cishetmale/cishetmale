@@ -1,9 +1,8 @@
-ʰᵃᵘⁿᵗᵉᵈ ᵐᵒᵘⁿᵈ ᵇᵒʸˢ ʲᵘˢᵗ ʷᵃⁿⁿᵃ ʰᵃᵛᵉ ᶠᵘⁿ<br><br>
+ʰᵃᵘⁿᵗᵉᵈ ᵐᵒᵘⁿᵈ ᵇᵒʸˢ ʲᵘˢᵗ ʷᵃⁿⁿᵃ ʰᵃᵛᵉ ᶠᵘⁿ<br>
+<a href="https://rentry.co/fictionslayer">01</a>ㅤ<a href="https://fuminori.atabook.org/">02</a>ㅤ<a href="https://pronouns.cc/@fuminori">03</a><br>
+
 <img src="https://file.garden/armvItnyuXvvgEB5/PC%20_%20Computer%20-%20The%20Song%20of%20Saya%20~%20Saya%20no%20Uta%20-%20Characters%20-%20Fuminori%20Sakisaka.png"><br>
-<p align="center>
-  
-<a href="https://rentry.co/fictionslayer">01</a>ㅤ<a href="https://fuminori.atabook.org/">02</a>ㅤ<a href="https://pronouns.cc/@fuminori">03</a>
-</p>
+
 
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
