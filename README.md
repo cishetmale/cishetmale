@@ -1,5 +1,5 @@
 <p align="center">
-<a href="https://rentry.co/fictionslayer">01</a>ㅤ<a href="https://fuminori.atabook.org/">02</a>ㅤ<a href="https://pronouns.cc/@fuminori">03</a></p>
+<a href="https://rentry.co/fictionslayer">rntry</a>ㅤ<a href="https://fuminori.atabook.org/">ata</a>ㅤ<a href="https://pronouns.cc/@fuminori">prns</a></p>
 
 <p align="center">
  <img src="https://files.catbox.moe/07gve7.gif"></p>
